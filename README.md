@@ -1,0 +1,2 @@
+# 17521294-gm.uit.edu.vn
+STATIC WEBSITE
